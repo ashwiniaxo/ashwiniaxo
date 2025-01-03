@@ -1,3 +1,5 @@
+![GIF](https://media.giphy.com/media/RbDKaczqWovIugyJmW/giphy.gif)
+
 ## Hi there, I'm Ashwinia Yogarajah. 👋
 
 # 💫 About Me:
