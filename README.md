@@ -1,4 +1,4 @@
-![GIF](https://media.giphy.com/media/RbDKaczqWovIugyJmW/giphy.gif)
+![GIF](https://media.giphy.com/media/L1R1tvI9svkIWwpVYr/giphy.gif)
 
 ## Hi there, I'm Ashwinia Yogarajah. 👋
 
